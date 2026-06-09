@@ -1,12 +1,12 @@
 #new webpage 
 121212
-new update will comming soon
+new update will comming soon so stay updated
 
 
 
 
 
-
+ 
 
 ## new upate is still pending
 due to few technology 
