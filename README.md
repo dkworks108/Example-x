@@ -5,7 +5,7 @@ new update will comming soon so stay updated
 
 ;'\;'\;'\;'\;
 
-TYUUTYU\;'\';\;'\
+TYUUTYU\;'\';\;'\ , aaaa 
  gdfgdfg
 
 ## new upate is still pending
