@@ -6,7 +6,7 @@ new update will comming soon so stay updated
 ;'\;'\;'\;'\;
 
 TYUUTYU\;'\';\;'\ , aaaa 
- gdfgdfg
+ gdfgdfgdgfdgfd
 hhhhcvbcvbvcbvcb
 jhioiouoiuoipupouo
 ## new upate is still pending
