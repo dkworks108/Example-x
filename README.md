@@ -7,7 +7,7 @@ new update will comming soon so stay updated
 
 TYUUTYU\;'\';\;'\ , aaaa 
  gdfgdfgdgfdgfd
-hhhhcvbcvbvcbvcb
+hhhhcvbcvbvcbvcbsfsdfs
 jhioiouoiuoipupouo
 ## new upate is still pending
 due to few technology ewrcvbcvbvcbcvb
