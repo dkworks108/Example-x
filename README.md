@@ -10,7 +10,7 @@ TYUUTYU\;'\';\;'\ , aaaa fsdfsd
 hhhhcvbcvbvcbvcbsfsdfsgdfgdfgfddfdfgdgdfgdfgdgfdg
 jhioiouoiuoipupouofsdfsfsfsdfdfgfdg
 ## new upate is still pending
-due to few technology ewrcvbcvbvcbcvb
+due to few technology ewrcvbcvbvcbcvbGDFGDFGFDG
 new updates are pending so i am try to build new project.RTfsdfsfsdfRET
 but for this i want ne instuments.gdfgdfgdfgfssdfsdfsd
 TERETsddsffsdfsdfds
