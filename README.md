@@ -7,7 +7,7 @@ new update will comming soon so stay updated
 DFGDFGFDGF
 TYUUTYU\;'\';\;'\ , aaaa fsdfsd
  gdfgdfgdgfdgfdGDFGFDGFD
-hhhhcvbcvbvcbvcbsfsdfsgdfgdfgfddfdfgdgdfgdfgdgfdg
+hhhhcvbcvbvcbvcbsfsdfsgdfgdfgfddfdfgdgdfgdfgdgfdgDFGFDGFDFD
 jhioiouoiuoipupouofsdfsfsfsdfdfgfdggfhfgfghflkihhkkljhjmnmn,n,mFDGFDGFDG
 ## new upate is still pendinggfhfgfgwerwerwerewgdfgfdggdfgfdgfddfgfdg
 due to few technology fdgdfgdfg
