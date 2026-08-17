@@ -1,4 +1,4 @@
-Dfghfghfghffg#new webpage 
+fsDfghfghfghffg#new webpage 
 121212
 new update will comming soon so stay updated
 
@@ -6,8 +6,7 @@ new update will comming soon so stay updated
 ;'\;'\;'\;'\;
 DFGDFGFDGF
 TYUUTYU\;'\';\;'\ , aaaa fsdfsd
- gdfgdfgdgfdgfdGDFGFDGFD
-hhhhcvbcvbvcbvcbsfsdfsgdfgdfgfddfdfgdgdfgdfgdgfdgDFGFDGFDFD
+ gdfgdfgdgfdgfdGDFGFDGFDsdfsdsdfsd
 jhioiouoiuoipupouofsdfsfsfsdfdfgfdggfhfgfghflkihhkkljhjmnmn,n,mFDGFDGFDG
 ## new upate is still pendinggfhfgfgwerwerwerewgdfgfdggdfgfdgfddfgfdg
 due to few technology fdgdfgdfg
