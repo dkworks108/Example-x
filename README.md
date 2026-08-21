@@ -11,7 +11,7 @@ jhioiouoiuoipupouofsdfsfsfsdfdfgfdggfhfgfghflkihhkkljhjmnmn,n,mFDGFDGFDG
 ## new upate is still pendinggfhfgfgwerwerwerewgdfgfdggdfgfdgfddfgfdg
 due to few technology fdgdfgdfgugjgjghkhgj
 new updates are pending so i am try to build new project.RTfsdfsfsdfRETsfdsdfsd
-but for this i want ne instuments.gdfgdfgdfgfssdfsdfsd
+but for this i want ne instuments.gdfgdfgdfgfssdfsdfsdwerwrwr
 TERETsddsffsdfsdfds
 sdfsdfgdfgdfgfdg
 kkjhk
