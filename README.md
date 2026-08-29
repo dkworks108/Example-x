@@ -7,7 +7,7 @@ new update will comming soon so stay updated
 DFGDFGFDGFkljj;ljl;jl;jl;j;
 TYUUTYU\;'\';\;'\ , aaaa fsdfsd
  gdfgdfgdgfdgfdGDFGFDGFDsdfsdsdfsd
-jhioiouoiuoipupouofsdfsfsfsdfdfgfdggfhfgfghflkihhkkljhjmnmn,n,mFDGFDGFDGgdfgfdgfdg
+jhioiouoiuoipupouofsdfsfsfsdfdfgfdggfhfgfghflkihhkkdgfdfgdfgfdljhjmnmn,n,mFDGFDGFDGgdfgfdgfdg
 ## new upate is still pendinggfhfgfgwerwerwerewgdfgfdggdfgfdgfddfgfdg
 due to few technology fdgdfgdfgugjgjghkhgjipu9ou987986hfgfghfgafsdsadfsadf
 new updates are pending so i am try to build new pfghfghfghfghfggfhroject.RTfsdfsfsdfRETsfdsdfssdfsdfsdfsdd
