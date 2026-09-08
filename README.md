@@ -8,7 +8,7 @@ DFGDFGFDGFkljj;ljl;jl;jl;j;etetetetetCXVXCVXCVXV
 TYUUTYU\;'\';\;'\ , aaaa fsdfsdfsdsdfsdfsdfsdfsdfsdf
  gdfgdfgdgfdgfdGDFGFDGFDsdfsdsdfsdxcvxcvxcxvcvxcvxcvGDFGDFGDFGFDGFDGDGDFGFDGFDGF
 jhioiouoiuoipupouofsdfsfsfsdfdfgfdggfhfgfghflkihhkkdgfdfgdfgfdljhjmnmn,n,mFDGdassadsadasdasdFDGFDGgdfgfdgfdg
-## new upate is still pendinggfhfgfgwerwerwerewgdfgffsdsdfsdfsdfdggdfgfdgfddfgfdg
+## new upate is still pendinggfhfgfgwerwerwerewgdfgffsdsdfsdfsdfsdfsdfsdfsggdfgfdgfddfgfdg
 due to few technology fdgdfgdfgugjgjghkhgjipu9ou98798VCXVXVC6hfgfghfgafsdsadfsadf
 new updates are pending so i am try to build new pfghfghfghfghfggfhroject.RTfsdfssdfsdfsdfdsfsdfRETsfdsdfssdfsdfsdfsdd
 but for this i want ne instuments.gdfgdfgdfgfssdetetetetetfsdfsdwerwrwrsdfsdfsdfsf
