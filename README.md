@@ -9,7 +9,7 @@ TYUUTYU\;'\';\;'\ , aaaa fsdfsdfsdsdfsdfsdfsdfsdfsdf
  gdfgdfgdgfdgfdGDFGFDGFDsdfsdsdfsdxcvxcvxcxvcvxcvxcvGDFGDFGDFGFDGFDGDGDFGFDGFDGF
 jhioiouoiuoipupouofsdfsfsfsdfdfgfdggfhfgfghflkihhkkdgfdfgdfgfdljhjmnmn,n,mFDGdassadsadasdasdFDGFDGgdfgfdgfdg
 ## new upate is still pendinggfhfgfgwerwerwerewgdfgffsdsdfsdfsdfsdfsdfsdfsggdfgfdgfddfgfdg
-due to few technology fdgdfgdfgugjgjghkhgjipu9ou98798VCXVXVC6hfgfghfgafsdsadfsadf
+due to few technology fdgdfgdfgugjgjghkhgjipu9ou98798VCXVXVC6hfgfghfgafsdsadfsadfhfghgfhfghf
 new updates are pending so i am try to build new pfghfghfghfghfggfhroject.RTfsdfssdfsdfsdfdsfsdfRETsfdsdfssdfsdfsdfsdd
 but for this i want ne instuments.gdfgdfgdfgfssdetetetetetfsdfsdwerwrwrsdfsdfsdfsf
 TERETsddsffsdfsdfds
