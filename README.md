@@ -6,7 +6,7 @@ gfdgfdgdasasdsaadsadsadsadetetet
 ;'\;'\;'\;'\;fsdfsdfsdfsdsdfsdfdeterrtetetZCZXCZXCXZC
 DFGDFGFDGFkljj;ljl;jl;jl;j;etetetetetCXVXCVXCVXVdfgdfgdgffghfhfghgfdgfdgfdg
 TYUUTYU\;'\';\;'\ , aaaa fsdfsdfsdsdfsdfsdfsdfsdfsdfhfgfhfgf
- gdfgdfgdgfdgfdGDFGFDGFDsdfsdsdfsdxcvxcvxcxvcvxcvxcvGDFGDFGDFGFDGFDGDGDFGFDGFDGF
+ gdfgdfgdgfdgfdGDFGFDGFDsdfsdsdfsdxcvxcvxcxvcvxcvxcvGDFGDFGDFGFDGFDGDGDFGFDGFDGFgdfgfdg
 jhioiouoiuoipupouofsdfsfsfsdfdfgfdggfhfgfghflkihhkkdgfdfgdfgfdljhjmnmn,n,mFDGdassadsadeqweqweqweasdasdFDGFDGgdfgfdgfdg
 ## new upate is still pendinggfhfgfgwerwerwerewgdfgffsdsdfsdfsdfsdfsdfsgdfgdfgfdfsggdfgfdgfddfgfdg
 due to few technology fdgdfgdfgugjgjghkhgjipu9ou98798VCXVXVC6hfgfghfgafsdsadfsadfhfghgfhfghf
