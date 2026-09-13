@@ -1,4 +1,4 @@
-DFGDFGDFGdfggfdfsDfghfghfghffg#new webpage 
+sDFGDFGDFGdfggfdfsDfghfghfghffg#new webpage 
 121212;lkk;lkl;k;lk;l
 new update will comming soon so stay updated
 fsdsdfsdf
@@ -9,7 +9,7 @@ TYUUTYU\;'\';\;'\ , aaaa fsdfsdfsdsdfsdfsdfsdfsdfsdfhfgfhfgf
  gdfgdfgdgfdgfdGDFGFDGFDsdfsdsdfsdxcvxcvxcxvcvxcvxcvGDFGDFGDFGFDGFDGDGDFGFDGFDGFgdfgfdg
 jhioiouoiuoipupouofsdfsfsfsdfdfgfdggfhfgfghflkihhkkdgfdfgdfgfdljhjmnmn,n,mFDGdassadsadeqweqweqweasdasdFDGFDGgdfgfdgfdg
 ## new upate is still pendinggfhfgfgwerwerwerewgdfgffsdsdfsdfsdfsdfsdfsgdfgdfgfdfsggdfgfdgfddfgfdg
-due to few technology fdgdfgdfgugjgjghkhgjipu9ou98798VCXVXVC6hfgfghfgafsdsadfsadfhfghgfhfghf
+due to few technology fdgdfgdfgugjgjghkhgjipu9ou98798VCXVXVC6hfgfghfgafsdsadfsadfhsfddsfsffghgfhfghf
 new updates are pending so i am try to build new pfghfghfghfghfggfhroject.RTfsdfssdfsdfsdfdsfsdfRETsfdsdfssdfsdfsdfsdd
 but for this i want ne instuments.gdfgdfgdfgfssdetetetetetfsdfsdwerwrwrsdfsdfseqweqwdfsf
 TERETsddsffsdfsdfds
