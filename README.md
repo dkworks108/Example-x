@@ -4,7 +4,7 @@ new update will comming soon so stay updated
 fsdsdfsdf
 gfdgfdgdasasdsaadsadsadsadetetetfsdfsdfsdfsdf
 ;'\;'\;'\;'\;fsdfsdfsdfsdsdfsdfdeterrtetetZCZXCZXCXZC
-DFGDFGFDGFkljj;ljl;jl;jl;j;etetetetetCXVXCVXCVXVdfgdfgdgffghfhfghgfdgfdgfdgetgertrfdgsgfd
+DFGDFGFDGFkljj;ljl;jl;jl;j;etetetetetCXVXCVXCVXVdfgdfgdgffghfhfghgfdgfdgfdgetgertrfdgsgfdsfsdfsddsf
 TYUUTYU\;'\';\;'\ , aaaa fsdfsdfsdsdfsdfsdfsdfsdfsdfhfgfhfgfsfsdfsf
  gdfgdfgdgfdgfdGDFGFDGFDsdfsdsdfsdxcvxcvxcxvcvxcvxcvGDFGDFGDFGdfgdfgFDGFDGDGDFGFDGFDGFgdfgfdg
 jhioiouoiuoipupouofsdfsfsfsdfdfgfdggfhfgfghflkihhkkdgfdfgdfgfdljhjmnmn,n,mFDGdasdfsdfssadsadeqweqweqweasdasdFDGFDGgdfgfdgfdg
